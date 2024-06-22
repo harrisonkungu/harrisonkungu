@@ -1,6 +1,6 @@
 # 🔧⚡ Harrison M. Kungu
 
-**`Software Engineer - Integrations Developer - FullStack Engineer`**
+**`Software Engineer - Android Developer - FullStack Engineer`**
 
 ### Hello there 👋
 
